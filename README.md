@@ -1,4 +1,4 @@
-![gif from nerdy.dev](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQ4nBjRFCORCwNglVilGYE_tx7BwcJWhLP6Xg&usqp=CAU?raw=true)
+![gif from nerdy.dev](https://ibb.co/1JwRwBj?raw=true)
 
 
 <!--
