@@ -1,5 +1,5 @@
-![gif from nerdy.dev](https://media.giphy.com/media/fHcDJrbUh1BYiOMM1z/giphy.gif?raw=true)
-### Hi there 👋
+![gif from nerdy.dev](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQ4nBjRFCORCwNglVilGYE_tx7BwcJWhLP6Xg&usqp=CAU?raw=true)
+
 
 <!--
 **KiloulB/KiloulB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
